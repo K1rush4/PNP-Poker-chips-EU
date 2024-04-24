@@ -17,12 +17,12 @@ We print two sheets of chips. I used the standard Canon PIXMA G1416 printer pres
 
 We cut along the contour, connect and pass through the laminator. It turns out that the front parts of the photo paper are laminated, but at the same time we can easily peel off the protective film from the back.
 
-![](/images/xlSkIKd.png)
+![](/images/xlSkIKddd.png)
 
 Glue one part onto the binding cardboard. Cut along the contour. We add the second one. We get a sheet with 35 chips.
 In order to start cutting, you need to make notches along the edges of the sheet using a stationery knife.
 
-![](/images/Bk2nPTI.png)
+![](/images/Bk2nPTIII.png)
 
 Apply a ruler and carefully cut out. I recommend cutting across the sheet, because... on a longer segment it is easier to make a mistake, move and ruin one or more chips.
 
